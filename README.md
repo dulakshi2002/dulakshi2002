@@ -1,5 +1,5 @@
 - 👋 Hi, I’m dulakshi_savindhya
-- 👀 I’m interested in codidng
+- 👀 I’m interested in coding
 - 🌱 I’m currently undergraduate in Software Engineering at SLIIT
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me E-mail - dulakshisavindya2002@gmail.com
